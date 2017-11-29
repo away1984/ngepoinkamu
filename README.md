@@ -1,0 +1,2 @@
+# ngepoinkamu
+safelink selalu
